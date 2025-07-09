@@ -1,4 +1,4 @@
-# SE Ranking Discount Code & Coupon (55% Off)
+# SE Ranking Discount Code & Coupon (55% Off) For 2025
 
 Are you looking for the latest [SE Ranking coupon](https://serprankingcoupon.com/recommends/deals/) to save 55% on your plan?
 
